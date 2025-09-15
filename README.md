@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **http809emran@gmail.com**
 
-- ⚡ Fun fact **I think i am realy funny.**
+- ⚡ **I think i am realy funny.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
